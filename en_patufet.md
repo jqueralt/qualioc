@@ -12,7 +12,7 @@ I va succeir que la dona va sentir-se indisposada, i al cap de set mesos va port
 -És tal com l' havíem desitjat, i l' estimarem amb tota l' ànima.
 
 
-![](/http://2.bp.blogspot.com/_h0Rqx0cM3pI/SxBZnc_ObUI/AAAAAAAAADg/z5dhtHL11rg/S220/patufet.jpg)
+![](http://2.bp.blogspot.com/_h0Rqx0cM3pI/SxBZnc_ObUI/AAAAAAAAADg/z5dhtHL11rg/S220/patufet.jpg)
 
 Considerant la seva mida, li varen posar el nom de Patufet. L' alimentaven tan bé com podien, però el nen no creixia, si no que seguia tan petit com al principi. De totes maneres, la seva mirada era viva i espavilada, i ben aviat va demostrar ser tan llest com el que més, i molt capaç de sortir-se 'n amb la seva en qualsevol cosa que fes.
 
